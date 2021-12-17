@@ -1,4 +1,4 @@
- # 🏛️ Consolidation/Exit Ticket - OPTION B 🏛️ 
+ # Consolidation/Exit Ticket - OPTION B 🏛️ 
  
  ### _Consolidation 3/Exit Ticket by Laura Manson_
 
